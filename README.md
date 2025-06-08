@@ -1,0 +1,1 @@
+So HELLO to myself, this is my repository for the udemy course of WEB_DEV where I am uploading all of my contents that my teacher there is teaching there. So this is my message to myself to be consistent and be sure to believe that you can do anything and nothing's stopping you. 
